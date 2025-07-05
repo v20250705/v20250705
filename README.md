@@ -14,6 +14,6 @@
 平台使用HTTPS加密，保障你的隐私和安全。无须付费，随时观看最新日本AV内容。
 立即访问，享受免费的高清日本成人影片！
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/v20250705/v20250705 ）</span>
 
 
